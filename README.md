@@ -37,6 +37,6 @@ We may update this Privacy Policy from time to time to reflect changes in our pr
 
     Contact Us
 
-If you have any questions, concerns, or requests regarding this Privacy Policy or the privacy practices related to our App, please contact us at pro.assitant@muneshwers.com .
+If you have any questions, concerns, or requests regarding this Privacy Policy or the privacy practices related to our App, please contact us at programmer1.muneshwers@gmail.com .
 
 By using our App, you signify your consent to the terms of this Privacy Policy. Please read this policy carefully before using the App.
